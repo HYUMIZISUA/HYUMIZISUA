@@ -1,4 +1,9 @@
-## Hi there 👋
+<p align="center">
+rosa 👇 will move if you sign my ata. dont believe me? try
+<p align="center">
+<img src="https://archives.bulbagarden.net/media/upload/6/67/Rosa_Xtransceiver.png" />
+<p align="center">
+<a href="https://rentry.co/teikou" target="_blank">rentry</a> | <a href="https://miracle.atabook.org/" target="_blank">atabook</a>
 
 <!--
 **HYUMIZISUA/HYUMIZISUA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
