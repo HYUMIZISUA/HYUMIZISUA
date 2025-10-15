@@ -1,7 +1,7 @@
 <p align="center">
-rosa 👇 will move if you sign my ata. dont believe me? try
+me and my exes soon 👇 pelase contact me again dani vivi i miss yo
 <p align="center">
-<img src="https://archives.bulbagarden.net/media/upload/6/67/Rosa_Xtransceiver.png" />
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/Adobe%20Express%20-%20file.png" width="300" height="300" />
 <p align="center">
 <a href="https://rentry.co/breastfeeding" target="_blank">rentry</a> | <a href="https://6fu.atabook.org/" target="_blank">atabook</a>
 
