@@ -1,5 +1,5 @@
 <p align="center">
-me and my exes soon 👇 pelase contact me again dani vivi i miss yo
+me and my exes soon 👇 pelase contact me again **** **** i miss yo
 <p align="center">
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/Adobe%20Express%20-%20file.png" width="300" height="300" />
 <p align="center">
